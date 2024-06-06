@@ -1,4 +1,4 @@
 # Ingredients
 - Coffee
 - Water
-- Milk (optional)
+- Plant Milk
