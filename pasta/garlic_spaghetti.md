@@ -3,7 +3,7 @@
 ## Ingredients
 
 - Spaghetti (enough for your serving size)
-- 2-3 cloves of garlic, finely chopped or minced
+- 5-6 cloves of garlic, finely chopped or minced
 - Olive oil (2-3 tablespoons)
 - Salt (to taste)
 - Optional: Freshly grated Parmesan cheese and red pepper flakes
